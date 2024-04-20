@@ -1,4 +1,4 @@
-# Vanilla Sweet Cream Cold Foam
+# Caramel Syrup
 
 ## Description: Warm days are made for cold foam. Start your morning with an icy sweet treat
 
